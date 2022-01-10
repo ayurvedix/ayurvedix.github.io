@@ -1,0 +1,1 @@
+# ayurvedix.github.io
